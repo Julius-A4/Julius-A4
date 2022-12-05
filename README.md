@@ -3,7 +3,7 @@ I am currently a Junior at Old Dominion Univeristy majoring in Game Studies and 
 
 
 
-- 🔭 I’m currently working on a video game at VMASC and my Bachelors Degree!
+- 🔭 I’m currently working on a project at VMASC and my Bachelors Degree!
 - 🌱 I’m currently learning Unity and furthering my knowledge of maya.
 - 📫 How to reach me: Email: ahmanjulius@gmail.com or jaust012@odu.edu (School email), Instagram: @juju_4ustin
 - 😄 Pronouns: He/Him
