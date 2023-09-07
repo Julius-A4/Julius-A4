@@ -1,5 +1,5 @@
 ### Hi there 👋, I'm Julius!
-I am currently a Senior at Old Dominion Univeristy majoring in Game Studies and Design looking to get into the Gaming Industry. 
+I am currently a Senior at Old Dominion Univeristy majoring in Game Studies and Design looking to further my experience in the Gaming Industry. 
 
 
 
