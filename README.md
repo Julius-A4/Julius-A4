@@ -1,11 +1,11 @@
 ### Hi there 👋, I'm Julius!
-I am currently a Junior at Old Dominion Univeristy majoring in Game Studies and Design as well as a team member on a project at the Virginia Modeling and Simulation Center (VMASC). 
+I am currently a Senior at Old Dominion Univeristy majoring in Game Studies and Design looking to get into the Gaming Industry. 
 
 
 
-- 🔭 I’m currently working on a project at VMASC and my Bachelors Degree!
-- 🌱 I’m currently learning Unity and furthering my knowledge of maya.
-- 📫 How to reach me: Email: ahmanjulius@gmail.com or jaust012@odu.edu (School email), Instagram: @juju_4ustin
+- 🔭 I’m currently a student at Old Dominion University Majoring in Game Design!
+- 🌱 I’m currently learning Unreal Engine and will be improving my level deisgn skills!
+- 📫 How to reach me: Email: ahmanjulius@gmail.com or jaust012@odu.edu (School email), Instagram: @juju_4ustin, LinkedIn: www.linkedin.com/in/julius-austin-59b993282
 - 😄 Pronouns: He/Him
 
 
